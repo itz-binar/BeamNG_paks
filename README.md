@@ -1,2 +1,2 @@
-https://modsfire.com/9d39HEbdX247AV5
+https://modsfire.com/CbXj25cgi4HjBu1
 # BeamNG_paks
