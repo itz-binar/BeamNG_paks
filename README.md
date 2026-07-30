@@ -4,6 +4,3 @@ https://drive.google.com/file/d/1WthQtmMROarUfyBsDU_ty8NaaOHcSnTW/view?usp=drive
  pack 2 
 [https://gofile.io/d/R1nGAQ]
 
-ereniko74@gmail.com
-
-Gtamarkt554410
